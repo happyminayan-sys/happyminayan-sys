@@ -28,7 +28,7 @@ I specialize in **Micro-DX for Healthcare**. I identify friction in the medical 
 
 ## 📫 Let's Connect!
 I'm looking for **Micro-consulting** or **Advisory roles** for Health-Tech startups.
-- **LinkedIn**: [https://www.linkedin.com/in/minako-sato-4016b23ba/?isSelfProfile=true]
+- **LinkedIn**: [https://www.linkedin.com/in/minako-sato-4016b23ba/?isSelfProfile=true]https://www.linkedin.com/in/minako-sato/
 - **Philosophy**: "Anti-Gravity" — Removing the barriers to creation.
 
 *"Stop wasting time on manual tasks. Let's build the future of nursing together."*
